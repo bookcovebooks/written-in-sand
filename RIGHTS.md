@@ -1,0 +1,1 @@
+This work is believed to be in the public domain in the United States. Copyright status in other countries may vary. Users are responsible for verifying the copyright status of this work in their jurisdiction.
